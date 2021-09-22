@@ -1,0 +1,1 @@
+I've never really travelled anywhere before, but I *am* looking forward to when the US border opens again. I'm hoping that it'll open again, at least to fully vaccinated Canadians, and I'll be able to see my boyfriend and some other friends.
